@@ -37,7 +37,7 @@ I focus on building **clean, practical, and high-quality solutions** that delive
 ---
 
 ## 📬 Contact
-- Email: your.email@example.com  
+- Email: ahmadrk.9747@gmail.com  
 - LinkedIn: [Ahmad Reza Kordi](https://www.linkedin.com/in/ahmadrezakordi/)  
 
 ---
